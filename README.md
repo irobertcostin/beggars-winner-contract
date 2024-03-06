@@ -1,0 +1,1 @@
+# beggars-winner-contract
